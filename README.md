@@ -1,1 +1,1 @@
-# Proeve-van-bekwaamheid
+# Proeve van bekwaamheid
